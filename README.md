@@ -1,3 +1,3 @@
 # Users
 
-![Capture](https://github.com/KayChicken/Users/assets/105989236/67600b79-0122-4f63-9c3b-373509bd7cbe)
+![Capture](https://github.com/KayChicken/Users/assets/105989236/d21cafd4-0f81-4ef9-881a-3b777b97f9d5)
